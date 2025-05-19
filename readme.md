@@ -1,1 +1,1 @@
-All the names were chaged to the correct format today
+All the names were changed to the correct format today
